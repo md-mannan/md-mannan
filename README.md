@@ -19,5 +19,5 @@ Feel free to check out my repositories to see more of what I’ve been working o
 - **GitHub**: [https://github.com/md-mannan](https://github.com/md-mannan)
 - **LinkedIn**: [Mohammad Abdul Mannan](https://www.facebook.com/mdmannan580)
 - **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/mohammad-abdul-mannan-337a7678/)
-- **Email**: [mdmannan580@outlook.com] (mdmannan580@outlook.com)
+- **Email**:  (mdmannan580@outlook.com)
 
